@@ -21,3 +21,6 @@ http://www.cese-m.eu/cesem/wp-content/uploads/2021/05/EN-Xinjiang-2.pdf
 Plus, it is laughable to pretend the U.S. and Europe (who have been colonizing, bombing, sanctioning, conducting coups, etc. against large swathes of the Muslim world for generations) somehow care more than the Muslim majority nations themselves:
 
 https://www.middleeastmonitor.com/20220810-diplomats-from-30-muslim-countries-visited-chinas-xinjiang-region/amp/
+
+Beyond hatred and anger - after the successful campaign against terrorism and Islamism, according to the will of Beijing, the conditions in Xinjiang should return to normal
+https://www.nzz.ch/meinung/xinjiang-china-kampf-gegen-terrorismus-und-separatismus-ld.1753509
